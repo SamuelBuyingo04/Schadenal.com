@@ -1,1 +1,1 @@
-# Schadenal.com
+# Schadanel.com
