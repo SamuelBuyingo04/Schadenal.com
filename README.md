@@ -1,1 +1,1 @@
-# Schadanel.com
+# Schedanel.com
